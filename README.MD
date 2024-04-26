@@ -14,5 +14,5 @@ Meus principais objetivos até o momento são:
 - [ ] Arrumar um emprego na área que estou cursando!
 - [ ] Fazer uma faculdade (ainda vou decidir o que fazer :/) \
 #### Obs: Aqui é *PEIXÃO* na alma e na veia!
-![JÓINHA.](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.cleanpng.com%2Fpng-emoji-emoticon-smiley-like-button-thumb-signal-dou-947623%2F&psig=AOvVaw0cQPV2Is6ivkgpic6rPJ6w&ust=1714232475459000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCND85vWb4IUDFQAAAAAdAAAAABAE)
+![JÓINHA.](https://i.pinimg.com/originals/06/dc/05/06dc051c6d6f1fe3645a7ded30f559c7.png)
 
