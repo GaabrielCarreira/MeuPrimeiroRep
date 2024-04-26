@@ -13,6 +13,6 @@ Meus principais objetivos até o momento são:
 - [ ] Concluir o Senai!
 - [ ] Arrumar um emprego na área que estou cursando!
 - [ ] Fazer uma faculdade (ainda vou decidir o que fazer :/)
-### Obs: Aqui é *PEIXÃO* na alma e na veia!
+#### Obs: Aqui é *PEIXÃO* na alma e na veia!
 ![JÓINHA.](https://www.conjur.com.br/img/b/emoji-joinha.jpeg)
 
