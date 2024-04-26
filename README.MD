@@ -8,7 +8,7 @@ Seja Bem-Vindo ao meu primeiro Repositório!
 
 Meu nome é Gabriel Silva Carreira, tenho 15 anos, mas faço aniversário dia 8 de maio! \
 Sou aluno do Sesi e do Senai! \
-Gosto de jogar bola, ouvir música jogar alguns jogos \
+Gosto de jogar bola, ouvir música e jogar alguns jogos! \
 Meus principais objetivos até o momento são:
 - [ ] Concluir a escola!
 - [ ] Concluir o Senai!
